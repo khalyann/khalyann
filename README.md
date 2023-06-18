@@ -1,3 +1,5 @@
+KHALYANN P CHAKRAVERTHY 
+
 Marketing Manager and Branding Expert with 20 years of experience. Having a unique blend of creative vision and business sense, I am dynamic and multi lingual Branding Expert known for my astute understanding of various Digital Marketing and Traditional Marketing, and offline Media Activities. A keen marketer who loves the rewarding challenge of building a brand online and offline. 
 
 **Experience : Mecwin Technologies India Pvt Ltd – Head Branding and Marketing – (March 2022 – till date)**
@@ -42,5 +44,23 @@ visibility and positively affect the company’s overall growth.
 •	A sister concern of Amway, profile consisted of executing various events and promotional activities as planned.
 •	Prepared event schedules, booked venues, cost planning, counter set ups etc. handled open meetings, business building seminars, summer conferences
 
+**Areas of Expertise** 
+Marketing Communication 
+Brand Management
+GTM strategy 
+Digital Marketing Operations 
+**
+Functional Skills**
+Leadership 
+Interpersonal skills 
+Team Handling 
+Communication 
+Negotiation 
+Collaborative
+
+**Education**
+
+Master of Business Administration Madras University
+1998 - 2000
 
 
