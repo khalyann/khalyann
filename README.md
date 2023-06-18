@@ -49,8 +49,10 @@ Marketing Communication
 Brand Management
 GTM strategy 
 Digital Marketing Operations 
-**
-Functional Skills**
+
+
+
+**Functional Skills****
 Leadership 
 Interpersonal skills 
 Team Handling 
